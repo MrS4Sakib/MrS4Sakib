@@ -1,5 +1,5 @@
 # MrS4Sakib
-Raj&amp;paid tools bypass done
+Mr&S4;paid tools bypass done
 
 
 #COMMAND👇👇
